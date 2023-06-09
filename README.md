@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @idrissevis
+- 👀 I’m interested in fictional women
+- 🌱 I’m currently learning how to masturbate
+- 💞️ I’m looking to collaborate on bed
+- 📫 How to reach me: send nudes
